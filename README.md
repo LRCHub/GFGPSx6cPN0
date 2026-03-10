@@ -1,0 +1,79 @@
+# Blue – One Love
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+It's kinda funny
+How life can change
+Can flip 180 in a matter of days
+Sometimes love works in
+Mysterious ways
+One day you wake up
+Gone without a trace
+I refuse to give up
+I refuse to give in
+Your my everything
+I don't wanna give up
+I don't wanna give in
+So everybody sing
+One love for the mother's pride
+One love
+for all the time we cried
+One love we gotta stay alive
+I will survive
+One love for the city streets
+One love for the hip hop beats
+One love Oh I do believe
+One love is all we need
+Late at night
+I'm still wide awake
+Feeling this one more
+than I can take
+I thought my heart could
+Never break Never break
+Now I know thats one big mistake
+I refuse to give up
+I refuse to give in
+Your my everything
+I don't wanna give up
+I don't wanna give in
+Everybody sing
+One love for the mother's pride
+One love
+for all the time we cried
+One love we gotta stay alive
+I will survive
+One love for the city streets
+One love for the hip hop beats
+One love Oh I do believe
+One love is all we need
+Baby just
+love me love me love me
+Baby just
+hold me hold me hold me
+Oooh love me love me love me
+Oh yeah One love
+Baby just
+love me love me love me
+Baby just
+hold me hold me hold me
+Oooh love me love me love me
+One love for the mother's pride
+One love
+for all the time we cried
+One love we gotta stay alive
+I will survive
+One love for the city streets
+One love for the hip hop beats
+One love Oh I do believe
+One love is all we need
+One love for the mother's pride
+One love
+for all the time we cried
+One love we gotta stay alive
+I will survive
+One love for the city streets
+One love for the hip hop beats
+One love Oh I do believe
+One love is all we need
+```
